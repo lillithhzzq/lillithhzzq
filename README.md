@@ -5,6 +5,6 @@
                                                   kin : 
         ᶻᵘᶻᵘ     ᵃᵘᵇʳᵉʸ    ʲᵃⁱᵐⁱᵉ    ᵗᵒᶠᵘ    ʲᵃᵈᵉ    ᶜᵉʳᵇᵉʳᵘˢ    ᶠᵒˣʸ    ᵃⁿᵍᵉˡⁱᶜⁱᵈᵉ    ᵖⁱˣᵃ    ʳᵉʸᵈᵃᵘ
 
-                                                 pages : 
-   [ata](https://lillithhzzq.atabook.org/) book  ・❥・   [straw](https://lillithhzzqstrawpage.straw.page/) page  ・❥・   [pronouns](https://en.pronouns.page/@lillithhzzq) page
+                                              
+   [ata](https://lillithhzzq.atabook.org/) book  ・❥・   [straw](https://lillithhzzqstrawpage.straw.page/) page  ・❥・  [pronouns](https://en.pronouns.page/@lillithhzzq) page
 
