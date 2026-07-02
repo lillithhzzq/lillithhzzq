@@ -1,6 +1,7 @@
           ☀︎﹌﹌﹌﹌﹌﹌﹌﹌☀︎﹌﹌﹌﹌﹌﹌﹌﹌☀︎﹌﹌﹌﹌﹌﹌﹌﹌☀︎﹌﹌﹌﹌﹌﹌﹌﹌☀︎﹌﹌﹌﹌﹌﹌﹌﹌☀︎
                                            Ƥ𝐄ɪяᴄ𝑒  th𝑒 v𝑬ɪ𝓛
-                                           ![Mizi and Sua dancing](assets/mizisua.jpg)
+                                           ![Mizi and Sua dancing](mizisua.jpg)
+
 
 
                                                   kin : 
