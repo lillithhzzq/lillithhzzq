@@ -6,5 +6,5 @@
         ᶻᵘᶻᵘ     ᵃᵘᵇʳᵉʸ    ʲᵃⁱᵐⁱᵉ    ᵗᵒᶠᵘ    ʲᵃᵈᵉ    ᶜᵉʳᵇᵉʳᵘˢ    ᶠᵒˣʸ    ᵃⁿᵍᵉˡⁱᶜⁱᵈᵉ    ᵖⁱˣᵃ    ʳᵉʸᵈᵃᵘ
 
                                                  pages : 
-        [ata](https://lillithhzzq.atabook.org/)   ・❥・   [strawpage](https://lillithhzzqstrawpage.straw.page/)
-                                             [pronouns_page](https://en.pronouns.page/@lillithhzzq)
+   [ata](https://lillithhzzq.atabook.org/) book  ・❥・   [straw](https://lillithhzzqstrawpage.straw.page/) page
+                                             [pronouns](https://en.pronouns.page/@lillithhzzq) page
