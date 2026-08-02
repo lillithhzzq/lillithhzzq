@@ -4,7 +4,7 @@
 <p align="center">
 <br />
 
-<img src="https://catbox.moe" alt="Misa Amane" align="center" />
+<img src="https://catbox.moe" alt="Misa Amane" />
 
 <br />
 
