@@ -2,7 +2,8 @@
                                               Ƥ𝐄ɪяᴄ𝑒  th𝑒 v𝑬ɪ𝓛
                                            
 <p align="center">
-  <img src="https://catbox.moe" alt="Misa Amane" />
+<img width="447" height="447" alt="images" src="https://github.com/user-attachments/assets/9326ad71-a13c-49b3-a2e6-ecd7e60b59d2" />
+
 </p>
 
                                                   kin : 
