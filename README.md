@@ -2,7 +2,7 @@
                                               Ƥ𝐄ɪяᴄ𝑒  th𝑒 v𝑬ɪ𝓛
                                            
 <p align="center">
-  <img src="<img width="447" height="447" alt="images-removebg-preview (15)" src="https://github.com/user-attachments/assets/d06e9f39-58d9-4fdc-b4a4-afbd09059f82" />" alt="Misa Amane" />
+  <img src="https://catbox.moe" alt="Misa Amane" />
 </p>
 
 
