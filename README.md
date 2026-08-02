@@ -3,7 +3,7 @@
                                            
 <p align="center">
   <a href="https://github.com/lillithhzzq">
-    <img src="https://files.catbox.moe/xgvi62.png" alt="Misa Amane" />
+    <img src="<img width="447" height="447" alt="images-removebg-preview (15)" src="https://github.com/user-attachments/assets/896e48dc-f5a2-4de3-a869-a78ceeb6358a" />" alt="Misa Amane" />
   </a>
 </p>
 
