@@ -2,8 +2,11 @@
                                               Ƥ𝐄ɪяᴄ𝑒  th𝑒 v𝑬ɪ𝓛
                                            
 <p align="center">
-  <img src="https://catbox.moe" alt="Misa Amane" />
+  <a href="https://github.com/lillithhzzq">
+    <img src="https://files.catbox.moe/xgvi62.png" alt="Misa Amane" />
+  </a>
 </p>
+
 
 
                                                   kin : 
