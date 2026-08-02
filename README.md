@@ -4,7 +4,7 @@
 
                                                   kin : 
              ᶻᵘ     ᵃᵘᵇʳᵉʸ    jaimie    ᵗᵒᶠᵘ    ʲᵃᵈᵉ    ᶜᵉʳᵇᵉʳᵘˢ    evan    ᵃⁿᵍᵉˡⁱᶜⁱᵈᵉ    ᵖⁱˣᵃ   
-                                              ʳᵉʸᵈᵃᵘ     kahzoo
+                                     ʳᵉʸᵈᵃᵘ     kahzoo     loveruffle
                                             
                                               
    [ata](https://lillithhzzq.atabook.org/) book  ・❥・   [straw](https://lillithhzzqstrawpage.straw.page/) page  ・❥・  [pronouns](https://en.pronouns.page/@lillithhzzq) page
