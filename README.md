@@ -2,8 +2,9 @@
                                               Ƥ𝐄ɪяᴄ𝑒  th𝑒 v𝑬ɪ𝓛
                                            
 <p align="center">
+<div style="text-align: center; background: none; border: none; padding: 0; margin: 0;">
   <img src="https://catbox.moe" alt="Misa Amane" />
-
+</div>
 
 
 </p>
